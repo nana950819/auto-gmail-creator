@@ -88,26 +88,10 @@ To bypass bot-detection, I am all ears to hear from you.
 
 ## Email
 
-leoshabit@gmail.com
-
-## Telegram
-
-https://t.me/leoshabit
-
-## Discord
-
-leoshabit#0825
-
-## Skype
-
-https://join.skype.com/invite/H6S0RFA69GNK
+luckyman100530@gmail.com
 
 
 ## Github
 
-https://github.com/leoshabit
-
-## Phone
-
-+12292995932
+https://github.com/nana950819
 
